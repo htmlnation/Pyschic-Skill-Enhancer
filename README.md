@@ -1,0 +1,2 @@
+# Pyschic-Skill-Enhancer
+Are you Psychic? No if you were then you would have wont the lotto knew where to find me and paid my house off, but you can be. I made the programs to enhance your Psychic ability so to thank me when you start moving items with just your mind then drop me a few bucks. Note the file location for the folder or images for this program. Below I have the images as a zip if you would like to see the program how it is now.
